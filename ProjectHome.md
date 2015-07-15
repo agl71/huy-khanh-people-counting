@@ -1,0 +1,1 @@
+count people pass by
